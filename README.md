@@ -1,1 +1,1 @@
-# Muhammad-Resky-Tugas-Pertemuan-14-WGTIK_2022-1302194069.github.io
+Hallo saya Muhammad Resky dengan nim 1302194069 dari kelas se 43 03
